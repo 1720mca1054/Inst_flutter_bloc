@@ -12,7 +12,9 @@ For Detailed explanation follow me on Medium.com
 ## Links
 
 https://medium.com/@neeraj.mobcoder
+
 https://www.linkedin.com/in/neeraj-maurya-119425156
+
 https://about.me/nmaurya/getstarted
 
 
